@@ -1,0 +1,1 @@
+Dasar pemalas:v
